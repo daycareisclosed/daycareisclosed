@@ -22,3 +22,6 @@ strawgpage ... https://aeinx1zdxz.straw.page
 <p align="center">
     <code style="color : Orangered">".ignoring.is.not.the.solution."</code>
 </p>
+<p align="center">
+    <better at english, not russian/chinese/spanish/brazilian/etc.>
+</p>
