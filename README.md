@@ -1,16 +1,24 @@
-## Hi there 👋
+![1000001867](https://github.com/user-attachments/assets/15674fae-0e71-418c-ba70-6871572642cf)
 
-<!--
-**daycareisclosed/daycareisclosed** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+<code style="color : Orangered">cr: @JX1DX1 on x, formerly twitter</code>
+</p>
+
+
+
+discord: _luckypizza
+
+strawgpage ... https://aeinx1zdxz.straw.page
+
+.
+.
+.
+.
+.
+
+
+<p align="center">
+    <code style="color : Orangered">".ignoring.is.not.the.solution."</code>
+</p>
